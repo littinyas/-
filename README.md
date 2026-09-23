@@ -4,7 +4,7 @@
 
 <br>
 
-✦　[ strawpage ](SEU_LINK)　✦　[ pronouns ](SEU_LINK)　✦　[ atabook ](SEU_LINK)　✦
+✦　[ strawpage ](https://hiratwoos.straw.page/)　✦　[ pronouns ](https://en.pronouns.page/@keimt_)　✦　[ atabook ](https://lituanyan.atabook.org/)　✦
 
 <br><br>
 
